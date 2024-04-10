@@ -1,0 +1,1 @@
+# factor-and-correlation-analyses-using-SPSS
